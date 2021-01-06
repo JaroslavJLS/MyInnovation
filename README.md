@@ -1,2 +1,2 @@
 # MyInovation
-Odborná publikácia: Inovácia pre spoločnosť: Nová vízia 
+Odborná publikácia: "Inovácia pre spoločnosť: Nová vízia"
